@@ -1,0 +1,98 @@
+# 2010s
+
+## Primary List
+
+- 3Below: Tales of Arcadia
+- The Americans
+- Babylon Berlin
+- Barry
+- Better Call Saul
+- Black Mirror
+- Bob's Burgers
+- Bodyguard
+- BoJack Horseman
+- The Boys
+- Broadchurch
+- Brooklyn Nine-Nine
+- Chernobyl
+- Collateral
+- Continuum
+- Crashing (UK)
+- The Crown
+- The Cry
+- Dark (DE)
+- Dark Matter
+- Derry Girls
+- Disenchantment
+- Documentary Now!
+- Don't Trust the B---- in Apartment 23
+- Electric Dreams
+- The End of the F\*\*\*ing World
+- Episodes
+- Euphoria (US)
+- The Expanse
+- The Fall
+- Fleabag
+- Glitch (Aus)
+- Good Omens
+- The Good Place
+- The Grand Tour
+- Halt and Catch Fire
+- The Handmaid's Tale
+- Hanna
+- His Dark Materials
+- Humans
+- It's Always Sunny in Philadelphia
+- iZombie
+- Jack Ryan
+- Jack Taylor
+- James May: Our Man in Japan
+- Killing Eve
+- Love, Death & Robots
+- Luther
+- Maniac
+- The Marvelous Mrs. Maisel
+- Master of None
+- Midnight Diner
+- Midnight Diner: Tokyo Stories
+- Mr. Robot
+- New Girl
+- The Newsroom
+- The OA
+- Offspring (Aus)
+- Orange Is the New Black
+- Orphan Black
+- The Outsider
+- Ozark
+- Peaky Blinders
+- Penny Dreadful
+- Rake (Aus)
+- Sense8
+- The Spy
+- Succession
+- The Terror
+- Tin Star
+- Travelers
+- The Trip
+- Trollhunters: Tales of Arcadia
+- Turn: Washington's Spies
+- Umbrella Academy
+- Utopia (Aus)
+- Veep
+- Veronica Mars
+- A Very English Scandal
+- Victoria
+- W1A
+- Wanted (Aus)
+- Watchmen
+- Watership Down
+- Westworld
+- White Dragon
+- The Witcher
+- A Young Doctor's Notebook
+- The Young Pope
+
+## Miscellaneous
+
+- Game of Thrones (Season 1-7)
+- Sherlock (Season 1-3)
